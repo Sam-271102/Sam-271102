@@ -8,4 +8,5 @@ write code and learn new things about technology.
 
 ## 📫 Connect with Me
 - [LinkedIn](https://www.linkedin.com/in/samuel-roy-8551082b3/)
+- [E-mail](samuelroyjojo2711@gmail.com)
 - [Instagram](https://www.instagram.com/__samuel__roy/)
